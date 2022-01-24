@@ -1,5 +1,7 @@
 # What you know about KFC: Korean Fried Chicken?
 
+![](Resources/kfc_1.jpeg)
+
 No one in Korea knew that fried chicken is a thing prior to 1940s. It was the US troops stationed in Korea during the Korea War late 1940s-early 1950s that introduced this new concept to the Koreans.
 
 Prior to that, chicken is only steamed, boiled, or used in soup. NEVER FRIED! And then bammmm! Right now, there are 87,000 fried chicken stores in Korea. Do you have any ideas how big that is? Let me put that into perspective for you: KFC has 25,000 restaurants, Mcdonalds has 37,000, and Subway is 44,000 worldwide. I mean FREAKING WORLDWIDE! And Korea has 87,000 stores just for fried chicken within its country LOL You see, you give Asians something and they don't just walk with it. They RUN with it and run FAST.
