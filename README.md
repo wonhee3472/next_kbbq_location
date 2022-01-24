@@ -1,6 +1,6 @@
 # What you know about KFC: Korean Fried Chicken?
 
-<img src="Resources/kfc_1.jpeg" length = "200"/>
+<img src="Resources/kfc_1.jpeg" width = "300"/>
 <!-- ![](Resources/kfc_1.jpeg) -->
 
 No one in Korea knew that fried chicken is a thing prior to 1940s. It was the US troops stationed in Korea during the Korea War late 1940s-early 1950s that introduced this new concept to the Koreans.
