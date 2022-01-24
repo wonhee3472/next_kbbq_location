@@ -9,8 +9,9 @@ Prior to that, chicken is only steamed, boiled, or used in soup. NEVER FRIED! An
 
 Here in St. Louis, we have quite many local places that have decent Korean fried chicken. But my personal favorite would be one of Korean's best: https://bbdotqchicken.com/ in O'fallon IL. 
 
-They are everywhere in the US now but I'm not sure why they would pick O'fallon over St. Louis. Like seriously? No offense but what in the world is in O'fallon? So here are some questions for me and everyone in St. Louis to consider if we w:
+They are everywhere in the US now but I'm not sure why they would pick O'fallon over St. Louis. Like seriously? No offense but what in the world is in O'fallon? So here are some questions for me and everyone in St. Louis to consider if we want to have some KFC in the vicinity:
 
-1. Can we open up another bbq chicken store in the Lou?
-2. 
+1. What's the daily consumption of fried chicken throughout the week/month/year in St. Louis? (there's no point if we open up a fried chicken restaurant in where not that many people like fried chicken)
+2. Where are the competitors located? Do we want to open up the store in a saturated area or somewhere far from the other chicken restaurants?
+3.  
 
