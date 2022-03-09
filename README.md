@@ -13,5 +13,5 @@ They are everywhere in the US now but I'm not sure why they would pick O'fallon 
 
 1. What's the daily consumption of fried chicken throughout the week/month/year in St. Louis? (there's no point if we open up a fried chicken restaurant in where not that many people like fried chicken)
 2. Where are the competitors located? Do we want to open up the store in a saturated area or somewhere far from the other chicken restaurants?
-3.  More questions will be coming
+3. More questions will be coming
 
